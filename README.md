@@ -1,1 +1,1 @@
-# Power point stuff from school retired from an public domain
+# Power point stuff from school
